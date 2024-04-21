@@ -32,6 +32,7 @@ Reading ever link I'm sent would be a full time job. Managing the reading of lin
 
 **The Freedom from Superficiality**
 From messenger's landing page. Just ... no
+
 ![alt text](image.png)
 
 **The Right to Focus**
